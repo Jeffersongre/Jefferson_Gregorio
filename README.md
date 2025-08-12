@@ -1,4 +1,3 @@
-# Jefferson_Gregorio
 # Jefferson Gregorio 🚀 | Entusiasta de Tecnologia em Transição
 
 Sou profissional de logística que decidiu virar o jogo e mergulhar de cabeça no universo da tecnologia.  
