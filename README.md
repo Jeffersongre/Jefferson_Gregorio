@@ -1,4 +1,4 @@
-# Jefferson Gregorio 🚀 | Entusiasta de Tecnologia em Transição
+# Jefferson Gregorio 🚀 | Entusiasta de Tecnologia
 
 Sou profissional de logística que decidiu virar o jogo e mergulhar de cabeça no universo da tecnologia.  
 Com raízes firmes no tradicional, trago disciplina, foco e experiência do dia a dia, somados à paixão por aprender, inovar e criar soluções que funcionam de verdade.
